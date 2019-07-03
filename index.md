@@ -6,11 +6,11 @@
 本次更新时间2019年7月3日
 
 #### 2019年网课视频合集【中华+东奥】
-- 税法一     	链接： [点击这里进入](https://pan.baidu.com/s/10pwoQepsNKQ6efTWHsrnwg "点击呀你") 密码：t9bj
-- 税法二	      链接： [点击这里进入](https://pan.baidu.com/s/1lSJRZpEinAhIRQFhBz627Q "点击呀你") 密码：0r6c
-- 涉税实务 	   链接： [点击这里进入](https://pan.baidu.com/s/1ED0EWEXVkQcGmz0JlMcf8w "点击呀你") 密码：9k3u
-- 涉税法律	   链接： [点击这里进入](https://pan.baidu.com/s/1XwCMUalbiMHgxaFySZhX5w "点击呀你") 密码：0rfq
-- 财务与会计	  链接： [点击这里进入](https://pan.baidu.com/s/1EQa3N6MNEB_JBTU1aYtCHg "点击呀你") 密码：1thw
+- 税法一     	链接： [点击这里呀你](https://pan.baidu.com/s/1ZXXhGlFLgGZthvtET_6eXA "点击呀你") 密码：t9bj
+- 税法二	      链接： [点击这里呀你](https://pan.baidu.com/s/1xKOzPd25bqKw1jVsHx3wjA "点击呀你") 密码：0r6c
+- 涉税实务 	   链接： [点击这里呀你](https://pan.baidu.com/s/1Gx68qkAIuu8W3iqonGKYQA "点击呀你") 密码：9k3u
+- 涉税法律	   链接： [点击这里呀你](https://pan.baidu.com/s/1z_mHGWTDLS7R-x3W6yBFAg "点击呀你") 密码：0rfq
+- 财务与会计	  链接： [点击这里呀你](https://pan.baidu.com/s/1YDl5grHZAjL4eqLYqEKTyw "点击呀你") 密码：1thw
 
 #### 2019年基础类学习资料【电子版】
 - 2019年税务师教材   链接： [点击这里进入](https://pan.baidu.com/s/1bHk7oWMcDWiFNRHcd3Ep3A "点击呀你") 密码：v9l9
