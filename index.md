@@ -6,15 +6,15 @@
 本次更新时间2019年7月3日
 
 #### 2019年网课视频合集【中华+东奥】
-- 税法一     	链接： [点击这里进入](https://pan.baidu.com/s/1ZXXhGlFLgGZthvtET_6eXA "别盯着看，你倒是点击呀你") 密码：t9bj
-- 税法二	      链接： [点击这里进入](https://pan.baidu.com/s/1xKOzPd25bqKw1jVsHx3wjA "别盯着看，你倒是点击呀你") 密码：0r6c
-- 涉税实务 	   链接： [点击这里进入](https://pan.baidu.com/s/1Gx68qkAIuu8W3iqonGKYQA "别盯着看，你倒是点击呀你") 密码：9k3u
-- 涉税法律	   链接： [点击这里进入](https://pan.baidu.com/s/1z_mHGWTDLS7R-x3W6yBFAg "别盯着看，你倒是点击呀你") 密码：0rfq
-- 财务与会计	  链接： [点击这里进入](https://pan.baidu.com/s/1YDl5grHZAjL4eqLYqEKTyw "别盯着看，你倒是点击呀你") 密码：1thw
+- 税法一     	链接： [点击这里进入](https://pan.baidu.com/s/1ZXXhGlFLgGZthvtET_6eXA "看什么看呀你，你倒是点击呀你") 密码：t9bj
+- 税法二	      链接： [点击这里进入](https://pan.baidu.com/s/1xKOzPd25bqKw1jVsHx3wjA "看什么看呀你，你倒是点击呀你") 密码：0r6c
+- 涉税实务 	   链接： [点击这里进入](https://pan.baidu.com/s/1Gx68qkAIuu8W3iqonGKYQA "看什么看呀你，你倒是点击呀你") 密码：9k3u
+- 涉税法律	   链接： [点击这里进入](https://pan.baidu.com/s/1z_mHGWTDLS7R-x3W6yBFAg "看什么看呀你，你倒是点击呀你") 密码：0rfq
+- 财务与会计	  链接： [点击这里进入](https://pan.baidu.com/s/1YDl5grHZAjL4eqLYqEKTyw "看什么看呀你，你倒是点击呀你") 密码：1thw
 
 #### 2019年基础类学习资料【电子版】
-- 2019年税务师教材   链接： [点击这里进入](https://pan.baidu.com/s/1bHk7oWMcDWiFNRHcd3Ep3A "别盯着看，你倒是点击呀你") 密码：v9l9
-- 2019年税务师报名简章及考试大纲   链接： [点击这里进入](https://pan.baidu.com/s/16iM8d3cWCWJcmcJgoyk0qw "别盯着看，你倒是点击呀你") 密码：12il 
+- 2019年税务师教材   链接： [点击这里进入](https://pan.baidu.com/s/1bHk7oWMcDWiFNRHcd3Ep3A "看什么看呀你，你倒是点击呀你") 密码：v9l9
+- 2019年税务师报名简章及考试大纲   链接： [点击这里进入](https://pan.baidu.com/s/16iM8d3cWCWJcmcJgoyk0qw "看什么看呀你，你倒是点击呀你") 密码：12il 
 
 ### 其他
 也许一开始报名你不一定喜欢，但是选择了就努力尝试一下，过程是痛苦的，结果也许更痛苦！不过试试也没什么损失！加油，祝你好运！
